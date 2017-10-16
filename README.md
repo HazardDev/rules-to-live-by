@@ -13,3 +13,4 @@
 - Put yourself out there
 - You have a 100% chance to fail, if you don't try
 - Speak clearly
+- There's always hope for a better tomorrow
